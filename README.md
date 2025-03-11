@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Roskizo
-- 👀 I’m interested in roskizo
+- 👀 I’m interested in hp iki e yo turu neng nong neng ku ingin kau tahu aku wes mboh yang 
